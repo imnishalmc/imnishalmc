@@ -1,5 +1,5 @@
-# 💫 About Me:
-HELLO! THERE<br>okay let's do some coding together<br>
+# 💫 HELLO THERE
+<br>okay let's do some coding together<br>
 
 
 ## 🌐 Socials:
