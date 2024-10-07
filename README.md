@@ -1,4 +1,4 @@
-# 💫 HELLO THERE
+# 💫 HELLO THERE!
 <br>okay let's do some coding together<br>
 
 
